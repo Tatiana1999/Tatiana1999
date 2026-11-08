@@ -45,6 +45,5 @@ I design and lead backend platforms that **collect, process and centralize data 
 
 ### 📫 Contact
 
-https://www.linkedin.com/in/karen-tatiana-mesa-lopez-90b25418a/ · ✉️ kren_tatiana@hotmail.com
-
+[LinkedIn](https://www.linkedin.com/in/karen-tatiana-mesa-lopez-90b25418a/) · ✉️ kren_tatiana@hotmail.com
 🇪🇸 Spanish (native) · 🇬🇧 English (learning)
